@@ -1,1 +1,0 @@
-# otpr-symky-ili-bagazh
